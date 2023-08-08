@@ -1,3 +1,3 @@
 # week2
 
-My name is 
+My name is Norah
